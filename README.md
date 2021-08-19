@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cryptosam07-dot
 - 👀 I’m interested in football freestyle
-- 🌱 I’m currently learning cryptocurrency ideas
-- 💞️ I’m looking to collaborate on crypto earnings
+- 🌱 I’m currently learning some cool stuff nvm :p
+- 💞️ I’m looking to collaborate with learners :)
 - 📫 How to reach me email cryptosam07@gmail.com
 
 <!---
